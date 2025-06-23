@@ -1,6 +1,6 @@
 # kewin-sungkur
 
-# 👋 Hi, I'm Sungkur Vashil Kewin
+# 👋 Hi, I'm Kewin Sungkur
 
 ##  About Me
 
